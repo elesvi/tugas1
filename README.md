@@ -1,5 +1,5 @@
 # tugas1
-https://www.youtube.com/watch?v=rhoQd6IAtDo - video demo 
+https://www.youtube.com/watch?v=N7Wqm1fPOQw - video demo 
 
 
 # refrensi 
